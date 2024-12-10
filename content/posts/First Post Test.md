@@ -81,5 +81,3 @@ Test the blog post on why oranges are orange for:
 * National Geographic's "Why Are Citrus Fruits So Colorful?"
 * Scientific American's "The Science Behind Orange Juice's Bright Color"
 * Food Science Daily's "Orange Peel Pigments and Their Role in the Fruit's Development"
-
-!![Image Description](/images/Pasted%20image%2020241210140736.png)
