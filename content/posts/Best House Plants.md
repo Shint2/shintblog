@@ -1,6 +1,6 @@
 **Bring Life and Greenery into Your Home with These Amazing House Plants!**
 
-![[Pasted image 20241210151145.png]]
+![[Pasted image 20241210151319.png]]
 
 Are you looking to add some personality and style to your living space? Do you want to purify the air, improve the aesthetic, and even boost your mood? Look no further than these incredible house plants!
 
